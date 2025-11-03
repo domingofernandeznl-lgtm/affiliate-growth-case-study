@@ -58,7 +58,7 @@ These videos highlight influencer-led content, UGC assets, and creator collabora
 
 I'm a performance-driven growth strategist with over 10 years of experience across affiliate, influencer, and performance marketing. I specialize in building marketing systems for creator-centric and subscription-based businesses, with a strong focus on innovation, experimentation, and results.
 
-Fluent in Spanish and English. Based in Barcelona.
+Fluent in Spanish, Durch (B2) and English. Based in Barcelona.
 
 📧 domingo.fernandez.nl@gmail.com  
 🔗 [LinkedIn](https://www.linkedin.com/in/bestgrowthmarketing/)

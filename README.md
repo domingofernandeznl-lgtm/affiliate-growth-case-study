@@ -46,6 +46,14 @@ At the onset of the COVID-19 pandemic, Tomplay needed to scale growth while redu
 
 ---
 
+## 🎥 Creator Playlist – Selected Campaign Activations
+
+Here’s a curated playlist featuring creators and influencers from past campaigns I led:
+
+▶️ [Watch on YouTube](https://www.youtube.com/playlist?list=PL0pAYCkAjOOEfEAYcqxwZ_qTL1wDsyBFW)
+
+These videos highlight influencer-led content, UGC assets, and creator collaborations used to scale Tomplay's reach and performance. Channels include long-tail musicians, educators, and niche creators with high audience trust and conversion performance.
+
 ## About Me
 
 I'm a performance-driven growth strategist with over 10 years of experience across affiliate, influencer, and performance marketing. I specialize in building marketing systems for creator-centric and subscription-based businesses, with a strong focus on innovation, experimentation, and results.
